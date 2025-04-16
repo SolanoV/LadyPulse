@@ -1,1 +1,1 @@
-# PrincessPulse
+# Lady Pulse: The Princess Quest
